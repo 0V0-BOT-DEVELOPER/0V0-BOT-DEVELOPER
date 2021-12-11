@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @0V0-BOT-DEVELOPER
 - 👀 I’m interested in not dying.
 - 🌱 I’m currently learning how to not die.
-- 💞️ I’m looking to collaborate on existing.
+- 💞️ I’m looking to like to try existing without dying.
